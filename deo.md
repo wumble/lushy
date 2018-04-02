@@ -12,3 +12,7 @@
 
 Das Natron unter Rühren im Wasser auflösen und mit Hilfe des Trichters oder einer übermenschlichen Feinmotorik in die Sprühflasche füllen. Die Öle dazu geben und kräftig schütteln.
 Vor dem Gebrauch ebenfalls kurz schütteln.
+
+## Credits
+
+https://wastelandrebel.com/de/sehr-effektives-deo-ohne-aluminium-und-andere-bedenklichen-stoffe/
